@@ -1,2 +1,0 @@
-# termsofservice
-# termsofservice
